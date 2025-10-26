@@ -22,4 +22,4 @@ I’m passionate about **open innovation**, **agentic AI**, and **data platform 
 
 ### 🔗 Find Me Online
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/varabonthu)
+- 🌐 [LinkedIn](https://www.linkedin.com/in/varaprofile/)
